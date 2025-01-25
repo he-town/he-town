@@ -10,6 +10,8 @@ Here's a little bit about me...
 - As an engineer, I value inclusivity and integrity 🌱
 - I like nutrition and fitness, singing in my community choir, video games and following the gaming industry, engaging with the digital art community, and listening to vocal synths! 🏋️‍♀️🎼🎮🎨
 
+Here's a link to my [resume](https://1drv.ms/b/s!Asb-0TM83hCFci4Jj4lEk26kbX4?e=ML6TBJ)! Thanks for stopping by 😊
+
 > "Think about what you need to do in order to make it a great day--then do those things"
 
 -- *Aristotle*
